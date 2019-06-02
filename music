@@ -1,8 +1,7 @@
 ## Music I Like
-
 **This is about music that I like currently. Updates daily.**
 
-1. While coding this, I'm listening to the deluxe version of Taylor Swift's Speak Now album. 
+1. While coding this, I'm listening to the deluxe version of Taylor Swift's Speak Now album and Cobra Starship.
 2. @bandcalledhappy on Twitter
 3. Panic! at the Disco, especially the Pretty. Odd. album.
 4. girl in red
